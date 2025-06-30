@@ -2,7 +2,7 @@
 
 Hi there! 👋
 
-Thanks for purchasing this professional portfolio website template. This is a **ready-made, easy-to-edit website** that lets you showcase your skills, projects, and experience — even if you’ve **never written a line of code** before.
+Thank you for purchasing this professional portfolio website template. This is a **ready-made, easy-to-edit website** that lets you showcase your skills, projects, and experience — even if you’ve **never written a line of code** before.
 
 Let’s get you started from **downloading the ZIP** all the way to publishing your site online!
 
